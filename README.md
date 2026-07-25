@@ -46,3 +46,4 @@ I dati non vengono venduti né condivisi con terze parti per finalità pubblicit
 Per qualsiasi richiesta relativa alla privacy è possibile contattare il titolare dell'app.
 
 Giovanni Italo
+sistemi.spgroupsrl@gmail.com
